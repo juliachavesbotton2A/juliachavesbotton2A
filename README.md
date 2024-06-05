@@ -9,6 +9,6 @@ Meu nome é Julia Chaves Botton
 ### Deseja entrar em contato comigo? 📬
 
 - juivonchaves14@gmail.com
-- @juuh_botton
+- [@juuh_botton](https:
   
 ![](https://media1.tenor.com/m/qvde3FkdjUcAAAAC/masha-i-medved-back-to-school.gif)
